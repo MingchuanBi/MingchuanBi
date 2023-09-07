@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+这里是明川ye~ 一个喜欢排球、会弹古筝、热爱音乐，喜欢记录生活的普通人！
 <!--
 **MingchuanBi/MingchuanBi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
